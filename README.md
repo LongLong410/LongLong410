@@ -1,3 +1,1 @@
-***Hey you. Yes. YOU.***
-I am a newbie ._.
-
+Maybe doing some projects in the future...?
